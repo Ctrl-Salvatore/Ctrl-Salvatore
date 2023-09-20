@@ -1,5 +1,5 @@
 # 💫 About Me:
-Curious and always ready to learn!<br>I studied Psychology for Organisation and during my work experiences I discovered a <br>passion for research and data analysis. <br><br>From the meeting of these two worlds comes the desire to give <br>humanity back to data and to capture the stories they can tell us
+Curious and always ready to learn! I studied Psychology for Organisation and during my work experiences I discovered a passion for research and data analysis. From the meeting of these two worlds comes the desire to give humanity back to data and to capture the stories they can tell us
 
 
 ## 🌐 Socials:
